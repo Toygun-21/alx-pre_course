@@ -1,1 +1,1 @@
-Kelvin is the best
+Knowledge they say is power
